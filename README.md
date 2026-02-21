@@ -1,1 +1,2 @@
+.
 # Repository-name-b-l-m-ne-yeni-bir-isim-yaz-n
